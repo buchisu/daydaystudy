@@ -1,1 +1,1 @@
-# daydaystudy
+各种学，欢迎批评！
